@@ -41,7 +41,7 @@ At OneClick-Med, we are redefining healthcare by centralizing patient registrati
 ## 📞 CONTACT US
 For more information, visit our website: [OneClick-Med](https://www.oneclickmed.ng/)  
 
-For inquiries, reach out at: [info@oneclickmed.ng](mailto:info@oneclickmed.ng) or or call us at: [tel:+234 813 364 425](tel:+2348138364425)  
+For inquiries, reach out at: [info@oneclickmed.ng](mailto:info@oneclickmed.ng) or or call us at: [+234813364425](tel:+2348138364425)  
 
 ---
 
