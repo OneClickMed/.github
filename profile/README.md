@@ -39,9 +39,9 @@ Tailored Services for Comprehensive Care:
 At OneClick-Med, we are redefining healthcare by centralizing patient registration and data through our One-Time Registration (OTR) and Electronic Medical Record (EMR) system. Enhancing inter-connectivity in the healthcare ecosystem, we ensure seamless access for superior patient care.
 
 ## 📞 CONTACT US
-For more information, visit our website: [OneClick-Med Website](https://www.oneclickmed.ng/)  
+For more information, visit our website: [OneClick-Med](https://www.oneclickmed.ng/)  
 
-For inquiries, reach out at: [info@oneclickmed.ng](mailto:info@oneclickmed.ng)  
+For inquiries, reach out at: [info@oneclickmed.ng](mailto:info@oneclickmed.ng) or or call us at: [tel:+234 813 364 425](tel:+2348138364425)  
 
 ---
 
